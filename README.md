@@ -1,4 +1,5 @@
 ### Hi there 👋
+My name is Nolan Hendrickson. A brief history on me is that I am 25 years old and grew up in the countryside of a small town called Shellsburg which is on the westernside of Cedar Rapids. After graduating high school i went into the army where i worked with the HIMARS weapon system. Working with the himars is what lead me to aerospace engineering. I am currently working on obtaining my bachelors degree in aerospace enginnering. I have this semster and two more to go in order to obtain that goal. Outside of school my hobbies include MLB (Chhicago Cubs), NFL (Green Bay Packers, and college football and basketball (Iowa State). I am a big movie and tv person as well and am currnetly rewatching Prison Break. I enjoy being outside wether its doing some activites with friends like fishing, golf, or disc golf. I am "looking forward" to this semester as alot of my classes have a practical application side to them which i enjoy.  
 
 <!--
 **NolanHen/NolanHen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
